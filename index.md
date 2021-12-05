@@ -2,4 +2,4 @@
 
 Thank you for visiting my site.
 
-We are currently trading as [Sfida Fashion](www.sfida-fashion.com) where you can find gymwear and activewear for men and women. 
+We are currently trading as [Sfida Fashion](https://www.sfida-fashion.com/) where you can find gymwear and activewear for men and women. 
